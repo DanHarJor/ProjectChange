@@ -6,3 +6,8 @@
 6. AI powered cat flap
 7. cat app
 7. Wood and metal electronics housing. 
+8. poop proceccing 
+9. leaf paper
+10. ai buisnees count
+11. Ukrainian hemp shop
+12. customizable juwerly
